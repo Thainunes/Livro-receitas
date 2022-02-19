@@ -1,40 +1,46 @@
-# Torta de Frango :chicken:
+# Strogonoff de Frango :chicken:
 
-### Recheio
+### Ingredientes
 
-- 500 g de [peito de frango](https://blog.tudogostoso.com.br/cardapios/peito-de-frango-recheado-com-salame-e-queijo/) sem pele
+- 3 [peitos de frango](https://www.tudogostoso.com.br/receita/10254-fricasse-de-frango.html) cortados em cubos
 
-- 1/2 litro de caldo de galinha
+- 1 dente de alho picado
 
-- 4 colheres (sopa) de óleo
-
-- 1 dente de alho amassado
+- sal e pimenta a gosto
 
 - 1 cebola picada
 
-- 3 tomates sem pele e sem sementes
+- 2 colheres (sopa) de maionese
 
-- 1 xícara (chá) de [ervilhas](https://blog.tudogostoso.com.br/cardapios/receitas-com-ervilha-em-lata/)
+- 1 colher de manteiga
 
-- sal e pimenta-do-reino a gosto
+- 1/2 [copo de ketchup](https://blog.tudogostoso.com.br/cardapios/ketchup-caseiro/)
+
+- 1/3 copo de mostarda
+
+- 1 copo de cogumelos
+
+- 1 copo de creme de leite
+
+- [batata palha](https://blog.tudogostoso.com.br/cardapios/receitas-faceis/receitas-com-batata-palha/) a gosto
 
   
 
-  ### Massa:
+  ### Modo de preparo
 
-- 3/4 de xícara (chá) de óleo
+  
 
-- 2 ovos
+- Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
 
-- 1 e 1/2 xícara (chá) de farinha de trigo
+- Em uma frigideira grande, derreta a manteiga e doure a cebola.
 
-- sal a gosto
+- Junte o frango temperado até que esteja dourado.
 
-- 1 colher (sopa) de fermento em pó
+- Adicione os cogumelos, o ketchup e a mostarda.
 
-- queijo ralado a gosto
+- Incorpore [o creme de leite](https://blog.tudogostoso.com.br/dicas-de-cozinha/creme-de-leite-fresco-caseiro-de-caixinha-e-mais/) e retire do fogo antes de ferver.
 
-- 250 ml de leite
+- Sirva com arroz branco e batata palha.
 
 
 
